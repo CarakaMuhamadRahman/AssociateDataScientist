@@ -1,1 +1,1 @@
-This Repo Show My Associate Data Scientist Certificate that I got from BNSP
+This Repo Shows All My Certifications in The Field of Technology Especially AI
